@@ -3,7 +3,7 @@
 <img src="https://pixelsafari.neocities.org/dividers/more/hangingstars.gif" width="200%" height="100%">
 <body>
   <font face="georgia">
-  <p align="center"> #1 YELLOW MALEVOLENT APOLOGIST </p>
+  <p align="center"><b></b> #1 YELLOW MALEVOLENT APOLOGIST </b></p>
 
   
 </font>
