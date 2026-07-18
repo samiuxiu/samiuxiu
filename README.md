@@ -1,2 +1,2 @@
-<p align="center" style="font-size: 50px;"> ᴄᴀʀ'ꜱ ʙᴏx </p>
+<p align="center" style="font-size: 50px;"> Samxxie </p>
 <img src="https://pixelsafari.neocities.org/dividers/more/sparkles5.gif" width="200%" height="100%">
