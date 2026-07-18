@@ -1,2 +1,4 @@
-<center> ## ᴄᴀʀ'ꜱ ʙᴏx </center>
+<center> 
+  ## ᴄᴀʀ'ꜱ ʙᴏx 
 <img src="https://pixelsafari.neocities.org/dividers/more/sparkles5.gif" width="200%" height="100%">
+</center>
