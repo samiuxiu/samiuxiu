@@ -4,7 +4,20 @@
 
   <p align="center"> ⋆✴︎˚｡⋆ </p> 
    
-  <p align="center"><b> #1 YELLOW MALEVOLENT APOLOGIST </b></p>
+  <h3 align="center"> #1 YELLOW MALEVOLENT APOLOGIST </h3>
 
+<p align="center"><i> “I Am the master of my fate.” </i></p>
 
-  
+  <br>
+
+<details align="center">
+<summary><b> About Me ! </b></summary>
+</details>
+
+<details align="center">
+<summary><b> Do NOT Interact if: </b></summary>
+</details>
+
+<details align="center">
+<summary><b> Fandoms </b></summary>
+</details>
