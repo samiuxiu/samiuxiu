@@ -97,6 +97,13 @@ You can also always ask, if you'd like to roleplay i wouldn't mind!! <br>
   <br>
   Kim Dokja (ORV) <br>
   <br>
+  Leviathan (Obey Me)  <br>
+  <br>
+  Ryland Grace (PHM) <br>
+  <br>
+  Reigen Arataka (MP100) <br>
+  <br>
+  <b><i> i love them sm </i></b>
   
 </details>
 
