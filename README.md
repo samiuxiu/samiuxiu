@@ -33,6 +33,25 @@ I am very inactive during weekdays due to school, unless it's vacation. <br>
 
 <details align="center">
 <summary><b> Do NOT Interact if: </b></summary>
+  <br>
+  You're Homophobic, Racist, or a Zoophile <br>
+  <br>
+  You're Judgemental.  <br>
+  <br>
+  You like to start drama for no absolute reason.  <br>
+  <br>
+  You don't respect boundaries.  <br>
+  <br>
+  You like to bring up sensitive topics with no warning or caution.  <br>
+  <br>
+  You find any abuse / cruelty towards animals funny.  <br>
+  <br>
+  You indulge in Pro-ships like Non-Con, Incest (includes Stepcest), Pedophillia, etc.  <br>
+  <br>
+  You're a Batcest shipper <br>
+  <br>
+  You're close Minded. <br>
+  <br>
 </details>
 
 <details align="center">
