@@ -78,6 +78,28 @@ You can also always ask, if you'd like to roleplay i wouldn't mind!! <br>
   
 </details>
 
+<details align="center">
+<summary><b> Characters Kins </b></summary>
+  <br>
+  Jason Todd (DC) <br>
+  <br>
+  Arthur Lester (Malevolent)  <br>
+  <br>
+  Yellow (Malevolent) <br>
+  <br>
+  Reki Kyan (SK8) <br>
+  <br>
+  Sprout (DW) <br>
+  <br>
+  Sapphire (B&S) <br>
+  <br>
+  Kim Marie (No Home) <br>
+  <br>
+  Kim Dokja (ORV) <br>
+  <br>
+  
+</details>
+
 <h2 align="center"> Interests ! </h2>
 
 <img src="https://pixelsafari.neocities.org/dividers/orangeflourish.gif" width="200%" height="100%">
@@ -97,11 +119,61 @@ I'm not hyperfocused on anything else atm.. <br>
 </details>
 
 <details align="center">
+<summary><b> Favorite Characters </b></summary>
+  <br>
+  Yellow (Malevolent) <br>
+  <br>
+  The Butcher (Malevolent) <br>
+  <br>
+  Jason Todd (DC) <br>
+  <br>
+  Conner "Kon-El" Kent (DC) <br>
+  <br>
+  Avery (SFAWTDE) <br>
+  <br>
+  Baek Eunyung (No Home) <br>
+  <br>
+  Kim Dokja (ORV) <br>
+  <br>
+  Lee Sayoung (THGLL) <br>
+  <br>
+  CatNap (PPT) <br>
+  <br>
+  Sprout (DW) <br>
+  <br>
+  Blackrock King (BT) <br>
+  <br>
+  Qi Rong (TGCF) <br>
+  <br>
+  Jiang Cheng (MDZS) <br>
+  <br>
+  Xia Fei (Link Click)<br>
+  <br>
+  Raven (B&S) <br>
+  <br>
+  Joseph (B&S) <br>
+  <br>
+  Reigen Arataka <br>
+  <br>
+  Kageyama Ritsu (MP100) <br>
+  <br>
+  
+  And alot more.. <br>
+  <br>
+</details>
+
+<details align="center">
 <summary><b> Fandoms </b></summary>
   <br>
  Malevolent <br>
   <br>
   DC Comics (Mainly Batfam) <br>
+  <br>
+  BlockTales <br>
+  <br>
+  Dandy's World (I don't support Qwel.) <br>
+  <br>
+  Link Click <br>
   <br>
   Spideypool <br>
   <br>
@@ -146,6 +218,8 @@ I'm not hyperfocused on anything else atm.. <br>
   Project Hail Mary <br>
   <br>
   Saiki K <br>
+  <br>
+  Stardew Valley <br>
   <br>
   And more.. <br>
   <br>
